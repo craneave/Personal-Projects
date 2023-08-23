@@ -1,1 +1,2 @@
 # Personal-Projects
+This is a collection of personal projects that I have created over the years. There are a few projects that I have still to upload from my computer from home, which I am not sure when I will be able to do, but will try to next time I go back to my home town. A lot of these projects are just ideas or partial working projects to sort of express ideas or interests, where as some are fully completed. 
